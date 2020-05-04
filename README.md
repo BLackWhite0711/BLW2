@@ -19,5 +19,5 @@
 
 # Donasi
 
-167201002962533 (NOPRIANTO) 
-silakan kirim bukti transaksi ke Ig , hati2 penipuan!
+- 167201002962533 (NOPRIANTO) 
+- silakan kirim bukti transaksi ke Ig , hati2 penipuan!
