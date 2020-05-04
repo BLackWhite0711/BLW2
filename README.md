@@ -12,3 +12,12 @@
  agar tidak checkpoint download opera mini / login di chrome buat Facebook baru ya 
  diutaman login duluh di browser oke 
  
+
+#Kontak 
+- Instagram : Noprian0_0
+- Youtube   : Noprian BLWT
+
+# Donasi
+
+167201002962533 (NOPRIANTO) 
+silakan kirim bukti transaksi ke Ig , hati2 penipuan!
