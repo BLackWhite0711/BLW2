@@ -25,7 +25,7 @@ $ diutamakan login duluh di browser oke
 
 # Donasi
 
-- 167201002962533 (NOPRIANTO) 
+- 167201002962533 a/n N 
 - silakan kirim bukti transaksi ke Ig , hati2 penipuan!
 
 
